@@ -4,6 +4,4 @@ First commit \_Daniil
 
 Yamini Ravi\_100006007
 
-Nishchitha SM
-
-Nishchitha Mallesha
+Nishchitha_100007030
